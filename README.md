@@ -37,6 +37,8 @@ Cursando: Tecnologia para Sistemas de Internet - TSI - Senac-Santo Amaro
 ## 📫 Contato
 
 📧 **E-mail:**   
+
 💼 **LinkedIn:** 
+
 💻 **Portfólio:**  
 
